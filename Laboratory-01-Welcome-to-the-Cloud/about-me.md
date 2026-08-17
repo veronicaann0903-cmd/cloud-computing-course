@@ -3,7 +3,7 @@
 
 ## Name
 
-Veromicaan Abuzo
+Veronicaann Abuzo
 
 ## Course
 
